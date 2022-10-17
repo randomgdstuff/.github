@@ -1,3 +1,3 @@
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqq
-email me at thchesminecraft@gmail.com to join
+email me at thchessminecraft@gmail.com to join
 11111111111111111111111111111111222222222222222223
